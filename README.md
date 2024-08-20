@@ -11,4 +11,4 @@ Hay veces que con el apuro a encontrar resultados, omitimos estos detalles y nos
 
 ¿Te pasó alguna vez de haber ejecutado una agrupación incorrecta? 😲
 
-Dejame tu comentario en la publicación de linkedin 👉
+Dejame tu comentario en la publicación de linkedin 👉 https://www.linkedin.com/feed/update/urn:li:activity:7231617260933545985/
